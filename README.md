@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @cj05
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning on secondary school year 9
+- 🌱 I’m currently learning on secondary school year 10
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me -
 
